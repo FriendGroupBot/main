@@ -1,1 +1,1 @@
-You voted for: "would you still be friends with them if they only spoke in movie quotes?"
+You voted for: "If this person could only speak in movie quotes, what movie or series would they choose?"
